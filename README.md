@@ -29,4 +29,4 @@
 ---
 
 ### 📫 Connect
-[LinkedIn](https://linkedin.com/in/shalinimurugan-060965222) • shalini15052000@gmail.comrd
+[LinkedIn](https://linkedin.com/in/shalinimurugan-060965222) • shalini15052000@gmail.com
